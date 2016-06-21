@@ -4,7 +4,7 @@ Another place to store more stuff.
 
 Hi everyone,
 
-I like everyone. 
+I like people. 
 I believe that everyone has something interesting to share about themselve.
 You just need to figure out what that interesting thing is!!!
 
